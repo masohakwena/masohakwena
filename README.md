@@ -1,5 +1,5 @@
 - 👋 Hi, I’m kwena Masoha
-- 👀 I’m interested in .listening to news..
+- 👀 I’m interested in .developing..
 - 🌱 I’m currently learning .skills develompment..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .matsatsi26@gmail.com..
